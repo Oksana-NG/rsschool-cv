@@ -1,3 +1,3 @@
 
 [CV Oksana Hahauz]
-https://Oksana-NG.github.io/rsschool-cv/cv
+https://Oksana-NG.github.io/rsschool-cv/
