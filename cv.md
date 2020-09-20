@@ -45,8 +45,6 @@ I am responsible and ambitious, I like working in a team, but it is also not dif
 
 ## Languages
 
-#### English level is B1
-    *Intermediate*
+#### English level is B1 *Intermediate*
 
-#### French level is B2
-    *Upper-Intermediate
+#### French level is B2 *Upper-Intermediate*
